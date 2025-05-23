@@ -49,6 +49,12 @@ This Unbounce Promo deal gives you access to several features, such as:
 * 👉 SEO-friendly features to improve search engine rankings.
 * 👉 Real-time collaboration tools for team-based projects.
 
+## Unbounce Promo Code - Get 25% OFF On Annual Plans
+Get [**25% off**](https://unbounce.partnerlinks.io/pricing2848) on any plan if you choose the annual billing option. This promotional deal from Unbounce saves you $69 on its top-tier Optimize plan.
+
+[![annual plan discount offer on Unbounce](https://github.com/user-attachments/assets/56906457-ff21-4f01-9bff-f651a298cc20)
+](https://unbounce.partnerlinks.io/pricing2848)
+
 ## Unbounce Discount Code To Save $249 [Annually]
 
 [**Save $249**](https://unbounce.partnerlinks.io/pricing2848) annually on the optimize plan by using this Unbounce discount code at checkout.
