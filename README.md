@@ -76,6 +76,12 @@ With this coupon deal on Unbounce, you will get:
 * Users: 3
 * Root domains: 2
 
+## Get 14-Day Unbounce FREE Trial
+Get a free landing page builder with a Unbounce [**14-day free trial**](https://unbounce.partnerlinks.io/pricing2848), you don't need to enter any credit card details to take advantage of this offer.
+
+[![free landing page builder](https://github.com/user-attachments/assets/56df34b0-546a-429f-ac1b-4d506fe1fa26)
+](https://unbounce.partnerlinks.io/pricing2848)
+
 ## How To Use Unbounce Coupon Code Discount?
 
 Follow these simple steps to claim a Unbounce promo code.
